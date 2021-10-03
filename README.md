@@ -1,0 +1,1 @@
+# Mintic-ciclo-3
